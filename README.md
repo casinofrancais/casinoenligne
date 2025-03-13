@@ -38,7 +38,7 @@ Betclic s’impose comme l’un des casinos en ligne français les plus réputé
 	•	Diversité des moyens de paiement
 	•	Licence délivrée par la Malta Gaming Authority
 #### Inconvénients de Betclic
-  •	Restrictions géographiques sévères.
+        •	Restrictions géographiques sévères.
 
 ### Winamax : Casino en ligne dédié aux amoureux des jeux et du sport
 
